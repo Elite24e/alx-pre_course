@@ -1,1 +1,1 @@
-My first reading
+Turst in the Lord
